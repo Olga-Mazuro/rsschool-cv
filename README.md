@@ -1,1 +1,1 @@
-# rsschool-cv
+https://olga-mazuro.github.io/rsschool-cv/cv
